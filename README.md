@@ -1,3 +1,3 @@
-提取ipv6源來源自
+提取ipv6直播源來源自
 http://www.wmdz.com/jk.html
-加以分类整理
+並加以仔細分类整理
